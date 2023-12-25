@@ -1,4 +1,9 @@
-hi im a mc servee dev im managing zedar smp and u can hire me for free<!---
+» 3.5+ years Exp
+» 289+ Clients served
+Proxy-[Bungee|velocity|waterfall]
+[Spigot|Paper|Bukkit]
+MC-[Optimiser|Configuration|Security]
+Contact/services [Discord/Mail]
 
 
 
